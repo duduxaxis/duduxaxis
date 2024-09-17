@@ -6,4 +6,4 @@ Meu nome é Eduardo Bryan
 - Utilizo esse espaço para minha organização e
  compartilhamento dos meus projetos desenvolvidos
 
-![Angolano acrobático](https://media.tenor.com/dyPKyTjVGM4AAAAM/piruleta-angolano.gif)
+![call of duty](https://i.gifer.com/2FzY.gif)
